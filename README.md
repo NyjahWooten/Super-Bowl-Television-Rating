@@ -1,1 +1,1 @@
-Estimating how mant people will watch the super bowl
+Estimating how many people will watch the super bowl
